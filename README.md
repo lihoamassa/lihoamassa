@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lihoamassa
-- 👀 I’m interested in money.
-- 🌱 I’m currently learning anything that pays (Cubersecutrity)
+- 👀 I’m interested in getting to eat the next day.
+- 🌱 I’m currently learning anything that pays (Cubersecurity)
 - 💞️ I’m looking to collaborate on anything that gets me payed
 - 📫 How to reach me...
 
